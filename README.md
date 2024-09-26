@@ -109,6 +109,8 @@ AtliQ Bay has the highest occupancy rate at 66%.
 - Elite rooms have the highest number of bookings but also the highest cancellation rate.
 
 ## Contact 
-[LinkedIn](https://www.linkedin.com/in/pratikshabajpai29/)            [Email](@pratikshabj77@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/pratikshabajpai29/)           
+
+[Email](@pratikshabj77@gmail.com)
 
 
